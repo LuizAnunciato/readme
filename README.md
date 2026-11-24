@@ -10,7 +10,7 @@ Olá, sou Luiz Felipe Anunciato! ✌️
 
 🔬 Meu objetivo acadêmico e profissional de longo prazo é seguir na área de Bioinformática, explorando a aplicação da Computação à pesquisa científica.
 
-📄 Confira meu [**Currículo**](https://drive.google.com/drive/u/0/folders/1AXcpp7BHcSXzDDIlh9jOdu3ax4J791NA). Estou aberto a feedbacks e sugestões!
+📄 Confira meu [**Currículo**](https://drive.google.com/file/d/1jiwxp4LXH7afH8Y1Z1R5eLk4xat1fmwH/view?usp=sharing). Estou aberto a feedbacks e sugestões!
 
 ---
 
